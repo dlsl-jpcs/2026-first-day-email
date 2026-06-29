@@ -18,6 +18,8 @@
 
 Uy, first day na! To every **BSIT, BSCS, and ACT student** stepping into De La Salle Lipa this academic year — welcome, and if you’re coming back, welcome back! Whether this is literally Day 1 for you or you’re returning for another level up, we’re genuinely glad you’re here ^^
 
+And to our amazing professors, welcome back! We look forward to learning from you and thank you for your continuous guidance.
+
 Ngl, the first day always hits different. New profs, new subjects, a group chat that’s already spiraling — it’s a lot to take in. But here’s the one thing you need to know before you even open Canvas:
 
 > 💬 **“The JPCS community isn’t just your go-to when acads get heavy —**
